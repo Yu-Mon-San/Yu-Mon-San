@@ -9,7 +9,7 @@
 
 - 👨‍💻 Check my portfolio here [https://ymsmaureen.netlify.app/](https://ymsmaureen.netlify.app/)
 
-- 🎨 Hobbies [singing, dancing, playing the piano]
+- 🎨 Hobbies **singing, dancing, playing the piano**
 
 - 💬 Ask me about **everything and anything**
 
